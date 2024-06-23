@@ -17,6 +17,9 @@ aroace genderfluid lesbian ^_^
 sys host & a minor <sup>!!</sup>
 </p>
 <p align="center">
+osc ╱ hlvrai ╱ cj fan & more
+</p>
+<p align="center">
 hello charlotte fans please interact!
 </p>
 <p align="center">
