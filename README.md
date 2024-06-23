@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=the-mind-electric&color=e8872f&style=plastic&label=views+⊹+&abbreviated=true)
   <p align="center">
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/8b037h.png">
