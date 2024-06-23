@@ -23,7 +23,7 @@ osc ╱ hlvrai ╱ cj fan & more
 hello charlotte fans please interact!
 </p>
 <p align="center">
-check out the rentry for more info
+read the rentry for more info
 </p>
 <p align="center">
     <img src="https://files.catbox.moe/l21kmj.png"/>     <img src="https://files.catbox.moe/2l480v.png"/>     <img src="https://files.catbox.moe/l2gcr1.png"/>
