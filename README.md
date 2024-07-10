@@ -27,7 +27,7 @@ osc ╱ hlvrai ╱ cj fan & more
 hello charlotte fans please interact!
 </p>
 <p align="center">
-<a href="https://rentry.co/organismassemblyline">rentry
+<a href="https://rentry.co/rehab_friday">rentry
 </p>
 <p align="center">
     <img src="https://files.catbox.moe/l21kmj.png"/>     <img src="https://files.catbox.moe/2l480v.png"/>     <img src="https://files.catbox.moe/l2gcr1.png"/>
