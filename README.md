@@ -24,7 +24,7 @@ sys host & a minor <sup>!!</sup>
 osc ╱ hlvrai ╱ cj fan & more
 </p>
 <p align="center">
-hello charlotte fans please interact!
+hello charlotte / mrsis fans PLEASE INTERACT PLEASE PLEASE PLEA
 </p>
 <p align="center">
 <a href="https://rentry.co/rehab_friday">rentry
