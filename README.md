@@ -1,12 +1,12 @@
-![](https://komarev.com/ghpvc/?username=the-mind-electric&color=e8872f&style=plastic&label=views+⊹+&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=the-mind-electric&color=aa231a&style=plastic&label=views+⊹+&abbreviated=true)
 <p align="center">
-    <img src="https://files.catbox.moe/ygjarx.png"/>
+    <img src="https://files.catbox.moe/bubv6d.png"/>
 </p>
   <p align="center">
 <picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/8b037h.png">
- <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/v6ny0q.png">
- <img alt="bennett or something" src="https://files.catbox.moe/8b037h.png">
+ <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/h08vsq.png">
+ <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/1jqxcw.png">
+ <img alt="bennett or something" src="https://files.catbox.moe/h08vsq.png">
 </picture>
  </p>
   <p align="center">
@@ -30,5 +30,5 @@ hello charlotte / mrsis fans PLEASE INTERACT PLEASE PLEASE PLEA
 <a href="https://rentry.co/rehab_friday">rentry
 </p>
 <p align="center">
-    <img src="https://files.catbox.moe/l21kmj.png"/>     <img src="https://files.catbox.moe/2l480v.png"/>     <img src="https://files.catbox.moe/l2gcr1.png"/>
+    <img src="https://files.catbox.moe/y2jbju.png"/>     <img src="https://files.catbox.moe/ncq4sw.png"/>     <img src="https://files.catbox.moe/r2l809.png"/>
 </p>
