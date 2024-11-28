@@ -1,11 +1,11 @@
-![](https://komarev.com/ghpvc/?username=the-mind-electric&color=aa231a&style=plastic&label=views+⊹+&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=the-mind-electric&color=7088b8&style=plastic&label=views+!!!+&abbreviated=true)
 <p align="center">
-    <img src="https://files.catbox.moe/bubv6d.png"/>
+    <img src="https://files.catbox.moe/nsj503.png"/>
 </p>
   <p align="center">
 <picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/h08vsq.png">
- <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/1jqxcw.png">
+ <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/91zl7s.png">
+ <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/hzw9g2.png">
  <img alt="bennett or something" src="https://files.catbox.moe/h08vsq.png">
 </picture>
  </p>
@@ -21,14 +21,12 @@ aroace genderfluid lesbian ^_^
 sys host & a minor <sup>!!</sup>
 </p>
 <p align="center">
-osc ╱ hlvrai ╱ cj fan & more
+LIMBUS COMPANY FAN!!
 </p>
 <p align="center">
-hello charlotte / mrsis fans PLEASE INTERACT PLEASE PLEASE PLEA
+hello charlotte / limbus company fans PLEASE INTERACT PLEASE PLEASE PLEA
 </p>
 <p align="center">
-<a href="https://rentry.co/rehab_friday">rentry
+<a href="https://rentry.co/heroonaplastichorse">rentry
 </p>
-<p align="center">
-    <img src="https://files.catbox.moe/y2jbju.png"/>     <img src="https://files.catbox.moe/ncq4sw.png"/>     <img src="https://files.catbox.moe/r2l809.png"/>
-</p>
+
